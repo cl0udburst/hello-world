@@ -2,6 +2,9 @@
 Another day, another cl0ud
 
 To see a World in a Grain of Sand
+
 And a Heaven in a Wild Flower,
+
 Hold Infinity in the palm of your hand 
+
 And Eternity in an hour.
